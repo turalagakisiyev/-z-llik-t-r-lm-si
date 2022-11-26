@@ -1,1 +1,1 @@
-# -z-llik-t-r-lm-si
+# ozellik-oturulmesi
